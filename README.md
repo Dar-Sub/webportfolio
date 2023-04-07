@@ -13,12 +13,6 @@ http://app.thedrivermart.com
 
 http://Alphacoin.cash
 
-http://quidafunds.com
-
-http://extremetoppers.com
-
-http://unionlogistics.net/
-
 https://techiesgist.com/
 
 https://solarandcontainer.com/
