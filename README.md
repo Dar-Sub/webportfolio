@@ -9,10 +9,6 @@ http://xaliyo.com
 
 http://strapy.finance
 
-http://Rapidvest.org
-
-http://unionlogistics.net
-
 http://app.thedrivermart.com
 
 http://Alphacoin.cash
