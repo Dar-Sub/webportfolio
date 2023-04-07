@@ -19,7 +19,7 @@ https://solarandcontainer.com/
 
 https://nskill.com.ng/
 
-https://jetextravels.com/
+https://speedbuka.com/
 
 http://marinest.org/
 
