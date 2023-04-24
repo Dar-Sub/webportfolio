@@ -57,20 +57,24 @@ https://ropsten.etherscan.io/address/0xA73b91C5e2D9e5D19E5FAaD621fFB1d9B8c528cD#
 MOBILE APPLICATION PORTFOLIO
 
 
-SpeedBuka(Android)
-https://play.google.com/store/apps/details?id=com.speedbuka.userapp
+SpeedBuka:
+(Android) https://play.google.com/store/apps/details?id=com.speedbuka.userapp
 
 
-Volest(Android)
-https://play.google.com/store/apps/details?id=com.volest.app
+Volest:
+(Android) https://play.google.com/store/apps/details?id=com.volest.app
 
 
-Doktorzz
-(Android)https://play.google.com/store/apps/details?id=com.medinsight.doktorzz
-(IOS)https://apps.apple.com/us/app/doktorzz/id1573247502
+Doktorzz:
+(Android) https://play.google.com/store/apps/details?id=com.medinsight.doktorzz
+(IOS) https://apps.apple.com/us/app/doktorzz/id1573247502
 
 
-4TraderX:(IOS) https://apps.apple.com/us/app/4traderx/id1605193631 ; (Android) https://play.google.com/store/apps/details?id=com.fourtraderx.app
+4TraderX:
+(IOS) https://apps.apple.com/us/app/4traderx/id1605193631
+(Android) https://play.google.com/store/apps/details?id=com.fourtraderx.app
 
 
-Versus Pay:(IOS) https://apps.apple.com/us/app/versuspay/id1602067247 ; (Android) https://play.google.com/store/apps/details?id=com.softdroom.versuspay
+Versus Pay:
+(IOS) https://apps.apple.com/us/app/versuspay/id1602067247
+(Android) https://play.google.com/store/apps/details?id=com.softdroom.versuspay
