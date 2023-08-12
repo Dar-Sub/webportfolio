@@ -4,13 +4,23 @@ Previous jobs done (ACTIVE)
 
 WEBSITES
 
+https://speedbuka.com/
+
 http://cmtggi.org
 
 http://doktorzz.com
 
-http://xaliyo.com
+https://horlarhairglam.com/
 
 http://strapy.finance
+
+https://tomaden.org
+
+https://irorundeglobalin.com
+
+https://volest.org
+
+http://xaliyo.com
 
 http://app.thedrivermart.com
 
@@ -22,19 +32,12 @@ https://solarandcontainer.com/
 
 https://nskill.com.ng/
 
-https://speedbuka.com/
-
 http://marinest.org/
 
 http://www.lodgenownow.com/
 
 http://star-esports.com
 
-https://tomaden.org
-
-https://irorundeglobalin.com
-
-https://volest.org
 
 
 BLOCKCHAIN & DAPP
