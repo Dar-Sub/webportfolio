@@ -10,6 +10,8 @@ http://cmtggi.org
 
 http://doktorzz.com
 
+https://tomaden.org/learnify
+
 https://horlarhairglam.com/
 
 http://strapy.finance
