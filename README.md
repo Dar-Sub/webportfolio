@@ -4,41 +4,27 @@ Previous jobs done (ACTIVE)
 
 WEBSITES
 
-https://speedbuka.com/
+https://techdynastyservices.com/
 
-http://cmtggi.org
+https://techpandang.com/
 
-http://doktorzz.com
+https://doktorzz.com/
 
-https://tomaden.org/learnify
+https://cmtggi.org
+
+https://apparegalia.com
+
+https://pamperstrands.com
+
+https://dyadluxury.com 
+
+https://techdynastyservices.com/dynasty-academy
+
+https://prosperahealth.co
+
+https://nskill.com.ng
 
 https://horlarhairglam.com/
-
-http://strapy.finance
-
-https://tomaden.org
-
-https://irorundeglobalin.com
-
-https://volest.org
-
-http://xaliyo.com
-
-http://app.thedrivermart.com
-
-http://Alphacoin.cash
-
-https://techiesgist.com/
-
-https://solarandcontainer.com/
-
-https://nskill.com.ng/
-
-http://marinest.org/
-
-http://www.lodgenownow.com/
-
-http://star-esports.com
 
 
 
